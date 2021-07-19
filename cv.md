@@ -1,6 +1,6 @@
 ## Ekaterina Bulakhova
 
-__katenalife@gmail.com__
+__katenalifee@gmail.com__
 
 _I'm a webmaster since 2005 year. I`m developing sites for small business - landing pages, catalogs and marketing sites._  
 
